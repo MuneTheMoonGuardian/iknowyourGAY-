@@ -7,13 +7,13 @@
   <table>
     <tr>
       <td>
-     $${\color{#959483}\space angloww \space / \space kelly}$$ 
+     $${\color{#959483}\space Mune \space / \space Ramuel}$$ 
    $${\color{#878f8b}\space × \space she/}$$
-        $${\color{#5b8071}they \space pronouns}$$ 
-        $${\color{#476561}> \space asocial}$$
+        $${\color{#5b8071}him \space pronouns}$$ 
+        $${\color{#476561}> \space ambivert}$$
         $${\color{#405667}\space ,}$$
-        <br> $${\color{#959483} (ᵕ—ᴗ—) \space PLEASE}$$ $${\color{#878f8b} BMF!}$$ $${\color{#5b8071} !! \space //}$$ $${\color{#476561}hihihi \space friends \space / \space oomfs}$$
-        <br> $${\color{#5b8071} wth \space do \space i \space put \space here}$$
+        <br> $${\color{#959483} (ᵕ—ᴗ—) \space W2I}$$ $${\color{#878f8b} ILMFriends}$$ $${\color{#5b8071} !! \space //}$$ $${\color{#476561}hihihi \space friends \space / \space oomfs}$$
+        <br> $${\color{#5b8071} wth \space do \space i \space put \space here \space hh}$$
       </td>
     </tr>
   </table>
@@ -29,18 +29,18 @@
   <table>
     <tr>
       <td>
-     $${\color{#959483}\space i \space hope \space you}$$ 
-   $${\color{#878f8b}\space understand \space what}$$
-        $${\color{#5b8071}you \space mean}$$ 
-        $${\color{#476561}to \space me}$$
+     $${\color{#959483}\space please \space respect \space my}$$ 
+   $${\color{#878f8b}\space boundaries \space !!}$$
+        $${\color{#5b8071}im \space taken}$$ 
+        $${\color{#476561}I'm \space a \space lesbian}$$
         $${\color{#405667}\space ,}$$
-        <br> $${\color{#959483} (˶˃ ᵕ ˂˶) \space c+h/int}$$ $${\color{#878f8b} usually}$$ $${\color{#5b8071} enc \space +}$$ $${\color{#476561}always \space iwc \space unless \space friend.}$$
-        <br> $${\color{#5b8071} number \space 1 \space hokisalem \space fan}$$
+        <br> $${\color{#959483} (˶˃ ᵕ ˂˶) \space c+h}$$ $${\color{#878f8b} usually}$$ $${\color{#5b8071} offtab \space +}$$ $${\color{#476561}always \space IWC \space unless \space friend.}$$
+        <br> $${\color{#5b8071} number \space 1 \space LambyLand \space fan}$$
       </td>
     </tr>
   </table>
 <details>
-  <summary> $${\color{#878f8b} \space click　 \space arrow  \space for \space unfinished/idk \space links　 ׅ  　 ·}$$</summary>
+  <summary> $${\color{#878f8b} \space click　 \space arrow  \space for \space unfinished \space links　 ׅ  　 ·}$$</summary>
 
  <a href="munemoonguardian.atabook.org">
    atabook
@@ -49,7 +49,7 @@ a ⸝⸝
 I ONLY HAVE AN ATA RN SORRY !
 </details>
 
-<a href="https://hits.sh/github.com/Angloww/hits/"><img width="120" alt="Hits" src="https://hits.sh/github.com/Angloww/hits.svg?style=plastic-square&label=dooptoot&extraCount=198283293&color=959483&labelColor=c4bda6"/></a> 　　⸝⸝ 　　 $${\color{#959483}burp! ˶ᵔ ᵕ ᵔ˶}$$   ⸝⸝   
+<a href="https://hits.sh/github.com/Angloww/hits/"><img width="120" alt="Hits" src="https://hits.sh/github.com/Angloww/hits.svg?style=plastic-square&label=Lambies&extraCount=198283293&color=959483&labelColor=c4bda6"/></a> 　　⸝⸝ 　　 $${\color{#959483}burp! ˶ᵔ ᵕ ᵔ˶}$$   ⸝⸝   
 
 
 
