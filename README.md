@@ -12,7 +12,7 @@
         $${\color{#5b8071}him \space pronouns}$$ 
         $${\color{#476561}> \space ambivert}$$
         $${\color{#405667}\space ,}$$
-        <br> $${\color{#959483} (ᵕ—ᴗ—) \space W2I}$$ $${\color{#878f8b} ILMFriends}$$ $${\color{#5b8071} !! \space //}$$ $${\color{#476561}hihihi \space friends \space / \space oomfs}$$
+        <br> $${\color{#959483} (ᵕ—ᴗ—) \space W2I}$$ $${\color{#878f8b} ILMWife}$$ $${\color{#5b8071} !! \space //}$$ $${\color{#476561}hihihi \space friends \space / \space oomfs}$$
         <br> $${\color{#5b8071} wth \space do \space i \space put \space here \space hh}$$
       </td>
     </tr>
