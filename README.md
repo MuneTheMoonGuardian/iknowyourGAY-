@@ -32,7 +32,7 @@
      $${\color{#959483}\space please \space respect \space my}$$ 
    $${\color{#878f8b}\space boundaries \space !!}$$
         $${\color{#5b8071}im \space taken}$$ 
-        $${\color{#476561}I'm \space a \space lesbian}$$
+        $${\color{#476561}and \space I'm \space a \space lesbian}$$
         $${\color{#405667}\space ,}$$
         <br> $${\color{#959483} (˶˃ ᵕ ˂˶) \space c+h}$$ $${\color{#878f8b} usually}$$ $${\color{#5b8071} offtab \space +}$$ $${\color{#476561}always \space IWC \space unless \space friend.}$$
         <br> $${\color{#5b8071} number \space 1 \space LambyLand \space fan}$$
